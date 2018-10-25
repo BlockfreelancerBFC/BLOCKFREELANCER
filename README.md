@@ -63,3 +63,14 @@ Bonus is attached to each purchase made by every investor
 
 ICO MAY BE SUSPENDED WHILE AIRDROP TOKENS STARTS TRADING:
 We might pause ICO until platform is launched but the already existing or sold tokens on private sale and airdrops will be trading on exchanges 
+
+
+⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️
+
+Hi Blockfreelancer users.
+
+We wish to announce an instant Stop of tokens sales and end the project too. We don't seems to be getting any supports or contributions to enable us continue the project. Everyone is simply here for airdrop nobody is contributing, we can't afford to continue because there won't be money to develop platform, pay exchange fees, and possibly pay the team. We'd be returning the money we raised from our indoors private investors, then put an end to the project because we couldn't raise funds from the public.Therefore, soft cap  not reached. 
+
+We wish to make this project successful but we can't continue without funds.
+
+Regards Blockfreelancer
